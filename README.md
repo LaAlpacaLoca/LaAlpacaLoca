@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @LaAlpacaLoca
-- 😄 Pronouns: UwU/Nya
+- 😄 Pronouns: UwU/Nya/gyaaaatttt
