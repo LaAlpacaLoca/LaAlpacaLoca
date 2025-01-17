@@ -1,2 +1,3 @@
 - 👋 Hi, I’m @LaAlpacaLoca
 - 😄 Pronouns: UwU/Nya/gyaaaatttt
+- 🦙 Aficionado a las alpacas 
